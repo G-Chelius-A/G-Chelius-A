@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+<img src="githubpfp.png" width="1080" />
+
 <!--
 **G-Chelius-A/G-Chelius-A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
