@@ -28,6 +28,6 @@
 
 ---
 
-> _"I'm as human as anyone. I love, I get scared. I wake up every morning and, despone not knowing what to do, I put one foot in front of the other and I try to make the best choices I can. I screw up all the time, but that is being human. And that's my greatest strenght"._
+> _"I'm as human as anyone. I love, I get scared. I wake up every morning and, despite not knowing what to do, I put one foot in front of the other and I try to make the best choices I can. I screw up all the time, but that is being human. And that's my greatest strength"._
 >
 > — Superman (in Superman, 2025)
